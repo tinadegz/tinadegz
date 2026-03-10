@@ -1,6 +1,6 @@
 ##  ## I'm Tina👋🏻
 
- 🧠 Mensch-Computer-Interaktion/Informatik aspirant student at Uni Hamburg💫<br/>
+ 🧠 Aspirant student 💫<br/>
  👾 I'm currently learning the basic steps of Coding and trying to create something✨👩🏻‍💻<br/>
 
 
